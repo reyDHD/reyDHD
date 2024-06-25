@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @reyDHD
+- 👀 I’m interested in data analytics and AI
+- 🌱 I’m currently learning AWS
+- 📫 How to reach me: on telegram with the same username
+- 😄 Pronouns: she/they
